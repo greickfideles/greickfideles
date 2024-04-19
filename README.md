@@ -1,0 +1,5 @@
+- 👋 Olá, Sou o @greickfideles;
+- 👀 Meus principais interesses são relacionados à tecnologia e qualquer área que envolva a interação humano-computador;
+- 📫 Se precisar de algo, contate-me: greickga9@gmail.com; ou pelo Instagram: @greick_fd;
+- 😄 Pronomes: Ele/Dele
+- ⚡ Fun fact: apaixonado por músicas do gênero pop internacional e leitor nas horas vagas (ou nem tão vagas assim).
